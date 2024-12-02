@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...bgfjierkopdrgb
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: .
+- 😄 Pronouns: .gfbgfmjyrhhb
 - ⚡ Fun fact: love kvas, very looooove
 <!---
 KvasTarasMarakas/KvasTarasMarakas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
