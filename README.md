@@ -1,6 +1,6 @@
 - 👋 Hi, I’m KvasTarasMarakas
 - 👀 I’m interested in
-- 🌱 I’m currently learning ...bgfr453hy
+- 🌱 I’m currently learning ...srthbhjyedhrth
 - 💞️ I’m looking to collaborate on .dfhyjdtyjd
 - 📫 How to reach me ...
 - 😄 Pronouns: .gfbgfmjyrhhb
