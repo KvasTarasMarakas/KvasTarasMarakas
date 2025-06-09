@@ -1,7 +1,7 @@
 - 👋 Hi, I’m KvasTarasMarakas
 - 👀 I’m interested in
 - 🌱 I’m currently learning ...regbtrhdtbh
-- 💞️ I’m looking to collaborate on gifserdfzdgstrdg
+- 💞️ I’m looking to collaborate on cfdyfgui
 - 📫 How to reach me ...
 - 😄 Pronouns: .gfbgfmjyrhhb
 - ⚡ Fun fact: love kvas, very looooove
